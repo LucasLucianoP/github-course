@@ -16,5 +16,3 @@ alo som
 plaktutum
 
 Outros cursos em : ...
-
-manajj apenas
